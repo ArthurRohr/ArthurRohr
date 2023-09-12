@@ -10,7 +10,8 @@
 
 💬 Ask me about my experiences in renewable energy engineering, my journey through Web Development Bootcamp, or any questions related to water resources engineering.
 
-📫 You can reach me on LinkedIn [here](insert your LinkedIn profile link).
+📫 You can reach me on [LinkedIn](https://www.linkedin.com/in/arthurrohrcardoso/).
+
 
 😄 Pronouns: He/Him
 
